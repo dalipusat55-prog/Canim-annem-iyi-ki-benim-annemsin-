@@ -1,1 +1,1 @@
-Canım Annem Benim ♥ I love you
+Canım Annem iyiki benim annemsin Anneler günün kutlu olsun♥♥♥
